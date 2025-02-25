@@ -16,4 +16,4 @@ I'm @duncanmutua, a passionate software engineering enthusiast with a keen inter
 - Email: duncanmmutua@gmail.com
 
 ## Fun Fact
-- ⚡ I enjoy solving puzzles! 😊
+- ⚡ Humor is relative.
